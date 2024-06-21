@@ -2,8 +2,8 @@
 - 👀 I’m interested in games
 - 🌱 I’m currently learning a creating games
 - 💞️ I’m looking to collaborate on anime
-- 📫 How to reach me games
-- 😄 Pronouns: games
+- 📫 How to reach me 45 999366460
+- 😄 Pronouns: eu sou ele pois eu sou homem
 - ⚡ Fun fact: games
 
 <!---
